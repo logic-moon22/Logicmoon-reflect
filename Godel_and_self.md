@@ -40,3 +40,5 @@ ENGLISH (Extended Reflection – Robot and Functions)
 
 Like building a robot: we provide it with a set of functions including constant functions, successor functions, and projection functions. From these, the robot is constructed such that any input leads to a determined, correct output. The model is not designed to predict every possible situation, but to possess an internal logical structure solid enough to evaluate any variation. For example, a temperature control system may not foresee every environmental change, yet it responds correctly due to a logically structured feedback mechanism.
 
+logicmoon22@gmail.com
+
