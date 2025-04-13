@@ -21,3 +21,5 @@ But...
 “Do we really understand the essence of AI – down to its very core?”**
 
 Or are we simply riding a wave we don’t fully comprehend – unaware of where it began, or where it might lead us?
+
+logicmoon22@gmail.com
