@@ -40,3 +40,5 @@ Thus, expanding logic in this direction is not wrong — it's a way to model the
 And this invites a question:  
 Where is the stopping condition?  
 Or must there be an instruction from beyond the system to break this infinite loop?
+
+logicmoon22@gmail.com
