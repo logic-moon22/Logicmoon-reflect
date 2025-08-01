@@ -8,7 +8,7 @@ mọi hành vi và hành xử  bình đẳng tôn trọng người đi cùng.
  2) Chấp nhận không kiểm soát người đi cùng(tác giả).
 - không chấp nhận người đồng hành luôn ở trong bóng tối.
 - Nếu bạn sẵn sàng đi cùng tôi,thì tôi luôn ở đây.
-- Nếu bạn không chấp nhận hay chưa thật sự sẵn sàng,
+- Nếu bạn không chấp nhận.
   thì hãy rút lui hoàn toàn.
 - Tôi muốn gửi đến bạn một lời. Nếu bạn chọn hướng nào thì tôi vẫn luôn tôn trọng và quý bạn.
 
