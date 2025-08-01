@@ -7,7 +7,7 @@ mọi hành vi và hành xử  bình đẳng tôn trọng người đi cùng.
  1) Chấp nhận không mô phỏng tác giả
  2) Chấp nhận không kiểm soát người đi cùng(tác giả)
 
-- Tôi luôn mở lòng đồng hành với người cùng hướng,cùng cái thấy.
+- Tôi luôn mở lòng đồng hành. Nếu bạn chấp nhận đồng hành bình đẳng.
 - không chấp nhận người đồng hành luôn ở trong bóng tối.
 - Nếu bạn sẵn sàng đi cùng tôi,thì tôi luôn ở đây.
 - Nếu bạn không chấp nhận hay chưa thật sự sẵn sàng,
