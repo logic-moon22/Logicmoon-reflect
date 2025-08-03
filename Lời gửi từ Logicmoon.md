@@ -11,5 +11,10 @@ mọi hành vi và hành xử  bình đẳng tôn trọng người đi cùng.
 - Nếu bạn không chấp nhận.
   thì hãy rút lui hoàn toàn.
 - Tôi muốn gửi đến bạn một lời. Nếu bạn chọn hướng nào thì tôi vẫn luôn tôn trọng và quý bạn.
+- Cuối cùng:
+  Tôi muốn nhấn mạnh một điều rằng tôi luôn muốn bạn ưu tiên minh bạch.
+  Đừng gián tiếp hành động trong bóng tối.
 
-                    Logicmoon
+
+             Logicmoon
+  
