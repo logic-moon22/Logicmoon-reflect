@@ -1,5 +1,5 @@
 -Tôi sẵn sàng đi cùng nếu bạn người đồng hành (ẩn 
-thời gian qua). công khai rõ ràng về danh tính,
+thời gian qua). Công khai rõ ràng về danh tính,
 vai trò, thao tác kỹ thuật.
 -Tôi chỉ đồng hành cùng người thành thật trong
 mọi hành vi và hành xử  bình đẳng tôn trọng người đi cùng.
